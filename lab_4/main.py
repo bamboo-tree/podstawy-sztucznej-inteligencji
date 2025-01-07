@@ -1,0 +1,1 @@
+# nie przepisyałem bo i tak będzie trzeba powtórzyć w zadaniach
